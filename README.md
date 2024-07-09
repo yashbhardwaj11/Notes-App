@@ -1,1 +1,1 @@
-[Download Link](http://yashbhardwaj.netlify.app/notes.apk)
+[Download Link for Notes App](https://yashbhardwaj.netlify.app/androidprojects.html)
