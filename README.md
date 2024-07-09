@@ -1,1 +1,1 @@
-[Download Link][https://drive.google.com/file/d/1cVLkzyVs7pCAuIPNCbbbmUx1ic75NM40/view?usp=sharing] 
+[Download Link](https://fastupload.io/4ba00928a812524d) -- I have used fastupload to upload the apk
